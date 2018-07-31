@@ -1,0 +1,2 @@
+# MyCoach
+My Coach offers motivation as you are guided through your choice of chest, legs, abs, and cardio workouts that can be done in around 7 minutes minutes and require no additional fitness equipment. To prevent boredom the exercises for each workout are on seven day rotations.  **Each day after you complete a workout you will be notified of what tomorrows workout is** Also if you have suggestions for exercise you would like added in let me know, I'll listen. Below is one day of exercise: 
